@@ -1,1 +1,1 @@
-# Pricing-Cards from Wogal
+# Pricing-Cards from Wogal today 13:17
